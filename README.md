@@ -25,7 +25,7 @@
 
 ## 💼 Resume
 
-📄 [View My Resume (Google Drive)](https://drive.google.com/file/d/1QCb0pXlWagPLR7eaQDtAW0O-ezz0CYka/view?usp=sharing)
+📄 [View My Resume (Google Drive)](https://drive.google.com/file/d/1iuNzz15zFMMg8kfGoHcGQsRfHZPcmQjh/view?usp=sharing)
 
 ---
 
